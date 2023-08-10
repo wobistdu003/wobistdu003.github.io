@@ -29,7 +29,7 @@ Mi objetivo es contribuir y participar en la transformación digital a todos aqu
 ¡Me encantaría mantenerme en contacto contigo! Si tienes preguntas, sugerencias o simplemente quieres hablar sobre tecnología, no dudes en ponerte en contacto a través de:
 
 Correo Electrónico: cbenitez191@email.com
-
-LinkedIn: /carbenimurcia/
+LinkedIn: /carbenimurcia
+Medium: /@cbenitez191
 
 
